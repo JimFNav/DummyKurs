@@ -1,1 +1,5 @@
 # DummyKurs
+
+hei hei 🇳🇴
+
+hei 🏕️
